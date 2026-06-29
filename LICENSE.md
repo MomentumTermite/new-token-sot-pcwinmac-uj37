@@ -1,4 +1,4 @@
-# 
+# Automático new token sniper bot flujo de trabajo para Mac OS | Profesional new token sniper bot flujo de trabajo para PC Windows. Con protección contra front-running y análisis de volumen — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
